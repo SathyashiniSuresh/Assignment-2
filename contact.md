@@ -1,1 +1,1 @@
-Contact information here
+sure3800@mylaurier.ca

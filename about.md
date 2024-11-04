@@ -1,1 +1,1 @@
-About page
+Hi! I’m Sathyashini Suresh, and I’m studying journalism. I love telling stories, especially about social justice issues. I believe that media can help create change and bring people together. In my free time, I like to volunteer, learn about different cultures, and practice photography. I’m looking forward to sharing my journey and connecting with others who care about meaningful storytelling
